@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @barcodepony
-- 📍 blockchain dev based in Graz (AT)
+- 📍 Vienna - or somewhere in South East Asia
